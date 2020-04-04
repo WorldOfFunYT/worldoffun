@@ -1,2 +1,0 @@
-# worldoffun
-My blog
